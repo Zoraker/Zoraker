@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sumeet Vilas Shinde
 - 👀 I’m interested in Web Development,Andriod development
-- 🌱 I’m currently learning Government Polythecnic Mumbai
+- 🌱 I’m currently learning Siddhant College Of Engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Instagram,facebook
 
